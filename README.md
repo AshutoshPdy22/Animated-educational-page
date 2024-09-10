@@ -1,5 +1,5 @@
 # Welcome page for education 
-Grateful for this opportunity and looking forward to more learning experiences with PreroGative Pointers (Student Chapter) United University!✨
+Grateful for this opportunity and looking forward to more learning experiences✨
 
 ## Screenshots
 
